@@ -12,4 +12,16 @@
 
 ![This is an image](https://c.tenor.com/hVRzRZnx-YsAAAAM/pepe-the-frog-sitting-chillin.gif)
 
+## 2-я лаба
+
+Все в лучих традициях первой, быстро в ансисе, долго в отчете.
+
+Отчет пока не принят, лучше тоже не верить всему.
+
+GLHF
+
+![This is an image](https://c.tenor.com/aoNUhBwjFaEAAAAM/pepe-music.gif)
+
 *Берите, мне не жалко, но накормите автора хотя бы конфетой!*
+
+*Или скиньте gif-ок прикольных, а то у меня больше нет.*
