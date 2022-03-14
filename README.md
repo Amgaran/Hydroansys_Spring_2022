@@ -18,6 +18,8 @@
 
 Отчет пока не принят, лучше тоже не верить всему.
 
+У меня в очете Re = 100+N, а не 100+5N, потому что я делал по старой версии задания.
+
 GLHF
 
 ![This is an image](https://c.tenor.com/aoNUhBwjFaEAAAAM/pepe-music.gif)
